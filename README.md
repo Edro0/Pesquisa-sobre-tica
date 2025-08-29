@@ -1,1 +1,1 @@
-# Pesquisa-sobre-tica
+# Pesquisa-sobre-ética
